@@ -45,7 +45,7 @@ __Associate at Regal Entertainment__, North Las Vegas, Nevada
 - Coding Ability
 - Typing Speed
 - Computer Skills
-- 
+
 
 
 ## Soft Skills
