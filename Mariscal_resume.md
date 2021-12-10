@@ -23,7 +23,7 @@ __College of Southern Nevada__, North Las Vegas, Nevada
 `Expected 2023`
 __Brigham Young University - Idaho__, Rexburg, ID
 
-2
+
 
 
 ## Service and Work History
@@ -31,11 +31,13 @@ __Brigham Young University - Idaho__, Rexburg, ID
 `2020-Present`
 __A/V Technician with Event Services__, Rexburg, Idaho
 
-- Provided basic audio/visual equipment to smaller events that requested through our department.
+- Provided and setup basic audio/visual equipment to smaller events that requested through our department.
 
 
-`2023-2025`
-__Service Missionary__, South Africa
+`2018-2020`
+__Associate at Regal Entertainment__, North Las Vegas, Nevada
+
+- Cashier/POS system, janitorial services, ushering/ customer support
 
 
 
