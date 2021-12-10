@@ -40,6 +40,19 @@ __Associate at Regal Entertainment__, North Las Vegas, Nevada
 - Cashier/POS system, janitorial services, ushering/ customer support
 
 
+## Hard Skills
+
+- Coding Ability
+- Typing Speed
+- Computer Skills
+- 
+
+
+## Soft Skills
+
+- Adaptibility 
+- Teamwork
+- Work Ethic
 
 <!-- ### Footer
 
